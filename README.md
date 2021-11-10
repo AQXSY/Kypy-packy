@@ -1,2 +1,2 @@
 # Kypy-packy
-This is pack ofr gay FAT NIGGAS
+This is pack for men
